@@ -23,10 +23,7 @@ Para solicitar informações sobre minhas fotografias, fazer pedidos ou discutir
 
 Telefone: 41 99956-0146
 
-E-mail: eduardodaluz13@gmail.com
+Contato via E-mail: eduardodaluz13@gmail.com
 
-Formulário de Contato:
-
-[Formulário de Contato - Adicione um link para o formulário aqui, se disponível]
 
 Agradeço seu interesse no meu trabalho e estou ansioso para conectar-me com você!
